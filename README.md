@@ -1,7 +1,6 @@
 - @mamitta
 - currently learning a bit of everything
 - I’m looking to collaborate on literally anything that I can
-- Pronouns: ... She/her
  Fun fact: I hope there's a racetrack in heaven
 
 <!---
